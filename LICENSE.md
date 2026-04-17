@@ -1,4 +1,4 @@
-
+best Script for roblox adopt me - no cooldown and speed is the best roblox adopt me Script, featuring no cooldown and speed. Safe and powerful for
 
 
 ---
